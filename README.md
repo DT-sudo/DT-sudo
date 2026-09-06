@@ -2,4 +2,5 @@
 
 ### Contacts
 
-[tereshchenkovital@gmail.com](mailto:tereshchenkovital@gmail.com) · [LinkedIn](https://www.linkedin.com/in/dmitriy-tereshchenko-158130286/) · Prague, Czech Republic
+[tereshchenkovital@gmail.com](mailto:tereshchenkovital@gmail.com) · [LinkedIn](https://www.linkedin.com/in/dmitriy-tereshchenko-158130286/) 
+
